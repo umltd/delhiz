@@ -1,3 +1,0 @@
-delhiz
-======
-For Dehliz.com
